@@ -1,2 +1,2 @@
 ## i am awesome
-thank you
+thank you for coming to myu ted talk
